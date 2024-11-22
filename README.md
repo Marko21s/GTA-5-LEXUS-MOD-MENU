@@ -1,5 +1,5 @@
 <div align="center">
-  <h1>Kiddions Lexus Menu GTA 5 | Unlimited Money | RP Boost</h1>
+  <h1> Lexus Menu GTA 5 | Unlimited Money | RP Boost</h1>
 
   [![Downloads](https://img.shields.io/badge/Downloads-20k%2B-blue?style=for-the-badge&logo=download&logoColor=white)](#)
   [![Version](https://img.shields.io/badge/Version-2.1-green?style=for-the-badge)](#)
@@ -14,7 +14,7 @@
 
 ## Overview
 
-Unlock the true potential of GTA 5 with **Kiddions Mod Menu** – an advanced mod menu designed to give players unprecedented control over the game. Enjoy features like **Unlimited Money**, **RP Boost**, and much more. Perfect for players wanting to experience GTA 5 in an entirely new way.
+Unlock the true potential of GTA 5 with **Lexus Mod Menu** – an advanced mod menu designed to give players unprecedented control over the game. Enjoy features like **Unlimited Money**, **RP Boost**, and much more. Perfect for players wanting to experience GTA 5 in an entirely new way.
 
 This tool brings safe, powerful, and easy-to-use modifications, allowing you to access endless resources, enhanced gameplay, and full customization. Dominate the streets of Los Santos like never before!
 
@@ -71,13 +71,13 @@ Equip yourself with any weapon, fully customized to maximize damage and accuracy
 3. **Configure Settings**: Open the mod menu in-game and adjust settings to your preferences.
 4. **Enjoy Enhanced Gameplay**: Activate the mod features to take your GTA 5 experience to the next level.
 
-**Note**: Kiddions Mod Menu is optimized for GTA 5 on PC and is designed to minimize performance impact.
+**Note**: Lexus Mod Menu is optimized for GTA 5 on PC and is designed to minimize performance impact.
 
 ---
 
 ## Safety and Security
 
-Your safety is our priority. The **Kiddions Mod Menu** is equipped with advanced anti-detection features to keep your account secure while using mods.
+Your safety is our priority. The **Lexus Mod Menu** is equipped with advanced anti-detection features to keep your account secure while using mods.
 
 - **Undetectable Code**: Built with anti-detection technology
 - **Regular Updates**: Our team ensures compatibility with the latest game patches
@@ -89,9 +89,9 @@ Your safety is our priority. The **Kiddions Mod Menu** is equipped with advanced
 
 ## Frequently Asked Questions
 
-### Is Kiddions Mod Menu free?
+### Is Lexus Mod Menu free?
 
-Yes, the **Kiddions Mod Menu** is free for all users. Download and use all features without any cost.
+Yes, the **Lexus Mod Menu** is free for all users. Download and use all features without any cost.
 
 ### Can I get banned for using this mod?
 
@@ -111,4 +111,4 @@ Connect with other GTA 5 players, get support, and stay updated on future mod re
 
 ## Conclusion
 
-The **Kiddions Mod Menu** is your key to unlocking endless possibilities in GTA 5. With powerful features like Unlimited Money, RP Boost, and more, you can elevate your gameplay and fully customize your GTA experience. Download today and explore the best of Los Santos like never before!
+The **Lexus Mod Menu** is your key to unlocking endless possibilities in GTA 5. With powerful features like Unlimited Money, RP Boost, and more, you can elevate your gameplay and fully customize your GTA experience. Download today and explore the best of Los Santos like never before!
